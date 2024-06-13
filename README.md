@@ -21,6 +21,9 @@ https://linkedin.com/company/pacific-solar-car-project
 ### Instagram
 https://instagram.com/pacific.solarcar (50260039794)
 
+### LinkedIn
+https://linkedin.com/company/97174465
+
 
 
 ![Image Alt text](/images/aero.jpg)
